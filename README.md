@@ -5,6 +5,6 @@ mm
 DND = Completely AFK , Idle = offtab, but checking  
 *Taken, Inspo okay, Yumedanshi - IWC*  
 *No rp, no ship/romantic int - all else is fine*
----
+
 obvious DNI proship/lolisho/general nonce , bigots   
 ![](https://64.media.tumblr.com/c9866be81498de05e3c727f5dfe4300c/9b26f2f232297e59-a4/s250x400/d966cf75626534ad8990663d55172d323d80573b.gifv)
