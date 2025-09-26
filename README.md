@@ -3,4 +3,5 @@
 
 **17** y/o , Dec *20*th | Gaylm  Tboy  
 DND = Completely AFK , Idle = offtab, but checking  
-*Taken, Inspo okay, Yumedanshi - IWC*   
+*Taken, Inspo okay, Yumedanshi - IWC*  
+*No rp, no ship/romantic int - all else is fine*
