@@ -3,7 +3,7 @@
 
 **17** y/o , Dec *20*th | Gaylm  Tboy  
 DND = Completely AFK , Idle = offtab, but checking  
-*Taken, Inspo okay, Yumedanshi*
+*Taken, Inspo okay, Yumedanshi*  
 *No rp, no ship/romantic int - all else is fine*
 
 obvious DNI proship/lolisho/general nonce ; it goes both ways  
