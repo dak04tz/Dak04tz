@@ -1,10 +1,13 @@
 
-![](https://64.media.tumblr.com/aa68d906616d35270a3c4fe0112ac94d/dd851ed67dd48774-79/s100x200/aa195471a99618e03e5bbd56798d016c08c180af.pnj) ![](https://64.media.tumblr.com/8a97ea3c75fa04f9fec85e3654133391/33d712acbfed06d6-09/s250x400/1b4c4c3c4dad4946daed182cd394c14ca2fba990.gifv) ![](https://64.media.tumblr.com/a94c65ffddcb6ec4c91bd449685b9629/980a6fef4c29af1a-d6/s100x200/319fd58d4e645e3e3be148dd49a436d384310eb7.gifv)
+![](https://64.media.tumblr.com/aa68d906616d35270a3c4fe0112ac94d/dd851ed67dd48774-79/s100x200/aa195471a99618e03e5bbd56798d016c08c180af.pnj) ![](https://64.media.tumblr.com/8a97ea3c75fa04f9fec85e3654133391/33d712acbfed06d6-09/s250x400/1b4c4c3c4dad4946daed182cd394c14ca2fba990.gifv) ![](https://64.media.tumblr.com/a94c65ffddcb6ec4c91bd449685b9629/980a6fef4c29af1a-d6/s100x200/319fd58d4e645e3e3be148dd49a436d384310eb7.gifv) ![](https://64.media.tumblr.com/22231001377df9e4d85a5fe93fec4c86/79d8b316934d24c3-14/s100x200/ca1b01f8cb4f9f48c2cdbab75fdf1f450f00309c.gifv)
 
-**17** y/o , Dec *20*th | Gaylm  Tboy  
-DND = Completely AFK , Idle = offtab, but checking  
-*Taken, Inspo okay, Yumedanshi*  
-*No rp, no ship/romantic int - all else is fine*
+![](https://64.media.tumblr.com/2d3263386a9df178d1a072f32bb4ef7e/1772854da6a99e02-6e/s75x75_c1/e4f30b5728f372ae349b50cbc22423a4d98d2549.gifv) **17** y/o , Dec *20*th | Gaylm  Tboy  
+DND = Completely AFK ![](https://64.media.tumblr.com/f768a9798216e7242c4a6dc45c419258/5732e589548c1c67-99/s75x75_c1/67afbb3c6099118e5df70b3928f5f03b4e973911.gifv) Idle = offtab, but checking  
+*Taken* **I**nspo **okay**, *Yumedanshi* ![](https://64.media.tumblr.com/3fc502bdcc9362fe888fbe5073d7b2ae/4ae708fa88fd6797-25/s75x75_c1/a96fa0947e1c76d07e12e4de7d0a23143b5229ff.gifv)  
+**NO** rp, **NO** rom int  otherwise, int *freely!*  
 
-obvious DNI proship/lolisho/general nonce ; it goes both ways  
-![](https://64.media.tumblr.com/c9866be81498de05e3c727f5dfe4300c/9b26f2f232297e59-a4/s250x400/d966cf75626534ad8990663d55172d323d80573b.gifv)
+obvious DNI proship/lolisho/general nonce ; it goes both ways  ![](https://64.media.tumblr.com/6b4bb20c282f76af28fcfe12b9b8f88c/cd08a8b4b4faa9e3-4d/s75x75_c1/c7e4d54fee0f75f8a2cda4ee73bdfeecb02e3b6a.gifv)  
+![](https://64.media.tumblr.com/2b5b79eb805ca90c14ff06808dc236a5/f943d9890bee0f57-a3/s100x200/e98efc2b9a747a449de4d7033cbc3a63175be18a.gifv) ![](https://64.media.tumblr.com/d56f551c532be4474e925c291105bd21/b71a6f05aae197fe-ba/s100x200/20dd62c16417d04c0d8ddccb0e9b03fa038b03cc.pnj) ![](https://64.media.tumblr.com/a9008554c7b34c07b2188f7b2163c851/0a314c1722fc4072-36/s100x200/b779f6842cc9483c7d95a9b4140461b00dccdd29.pnj) ![](https://64.media.tumblr.com/951c85a78ed7a75871f452a6f1882964/5e134ee4dc935cc7-db/s100x200/9ad4555f4228da90e4fcb12af9a04c700a1fd7cd.pnj)  
+![](https://64.media.tumblr.com/55ad127199779582cacb2f65a3e2fee6/1d9199f2cdd51f15-e1/s100x200/9d752d8dfbcc7583d4a8756755060b5ee325eed7.gifv) ![](https://64.media.tumblr.com/bccbe0941b6295c51980e6f74dd50a4e/1d9199f2cdd51f15-3b/s100x200/943768d1eef04591db53fbf388d97f0683933631.gifv) ![](https://64.media.tumblr.com/19b3d9b4064728d04c3555860f590352/0f77eb4281c6b2ee-2d/s100x200/1b0e17f53f712d1e64facb61ee69b5ac20437218.gifv) ![](https://64.media.tumblr.com/89ffe89ed4b9a8d462d49fb60770bc0d/0f77eb4281c6b2ee-3b/s100x200/351eb5f8ddedaafe7b46630e62d9ce888607582d.gifv) ![](https://64.media.tumblr.com/8c7217648c5edb1c978f4af6cdddc7e5/0f77eb4281c6b2ee-86/s100x200/8f520f9476059ecbea9e7125a56dad83cfe03544.gifv)  
+![](https://64.media.tumblr.com/d8c9b9f8f339e03bb319dae57d3e5659/45a0a4567403b033-db/s250x400/b689250ac5462150698be9e284653cbf1e85baaa.gifv) ![](https://64.media.tumblr.com/d65484adae49934a1a2f057f2c49aeef/ecc8c6809fad26e4-cd/s250x400/408392e61e11ba25345cc53d0569fc4fd310c756.gifv)
+
