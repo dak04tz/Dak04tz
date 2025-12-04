@@ -3,7 +3,7 @@
 
 ![](https://64.media.tumblr.com/2d3263386a9df178d1a072f32bb4ef7e/1772854da6a99e02-6e/s75x75_c1/e4f30b5728f372ae349b50cbc22423a4d98d2549.gifv) **17** y/o , Dec *20*th | Gaylm  Tboy  
 DND = Completely AFK ![](https://64.media.tumblr.com/f768a9798216e7242c4a6dc45c419258/5732e589548c1c67-99/s75x75_c1/67afbb3c6099118e5df70b3928f5f03b4e973911.gifv) Idle = offtab, but checking  
-*Taken* **I**nspo **okay**, *Yumedanshi* ![](https://64.media.tumblr.com/3fc502bdcc9362fe888fbe5073d7b2ae/4ae708fa88fd6797-25/s75x75_c1/a96fa0947e1c76d07e12e4de7d0a23143b5229ff.gifv)  
+*Taken* , **I**nspo **okay**, *Yumedanshi* ![](https://64.media.tumblr.com/3fc502bdcc9362fe888fbe5073d7b2ae/4ae708fa88fd6797-25/s75x75_c1/a96fa0947e1c76d07e12e4de7d0a23143b5229ff.gifv)  
 **NO** rp, **NO** rom int  otherwise, int *freely!*  
 
 obvious DNI proship/lolisho/general nonce ; it goes both ways  
